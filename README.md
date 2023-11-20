@@ -1,2 +1,2 @@
-# M-y-t-nh-ch-s-BMI-
+# May-tinh-BMI-
 Tên: Nguyễn Duy Khoa, MSSV: 220501013
